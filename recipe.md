@@ -4,3 +4,4 @@ add salt to the mixture
 then little to no water 
 then mix again
 after this it is ready to eat.
+Enjoy!
