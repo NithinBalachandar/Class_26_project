@@ -1,1 +1,0 @@
-Curd rice also called yogurt rice, is a dish originating from India. The word "curd" in Indian English refers to unsweetened probiotic yogurt. It is most popular in the Indian states of Tamil Nadu, Karnataka, Telangana and Andhra Pradesh.
